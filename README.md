@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aleka0
+- 🌱 I’m currently learning decentralization!!
+- 📫 How to reach me athomasbojin@gmail.com
